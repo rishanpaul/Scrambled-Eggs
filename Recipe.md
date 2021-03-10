@@ -1,0 +1,1 @@
+You put butter in the pan while it is warming up. Then you crack one or two eggs into a bowl and mix it. Then you put pepper and salt into that bowl and mix it. Then you pour the eggs into the pan and let it cook. After about 45 seconds begin to take a spatula and move it from side to side. then you have your eggs.
